@@ -7,4 +7,4 @@ hello secret diary again this is my second entry uhhhhhhhhhmmm i need to tell yo
 
 ![minecraftdiaries-laurance-zvahl](https://github.com/user-attachments/assets/f9c2fe66-5511-4b2f-a0c0-005535621e60)
 
-hello secret diary this is entry number 3.......... and i gotta tell u a secret! a big one you know sometimes i do get sad and think my skins are ugly....... but i have something 2 fix that......... i like 2 screenshot any crows and compliments i get and i put them in a foledr !!^_^ .. . ...... thats all goodbye secret diary
+hello secret diary this is entry number 3.......... and i gotta tell u a secret! a big one you know sometimes i do get sad and think my skins are ugly....... but i have something 2 fix that......... i like 2 screenshot any crowns and compliments i get and i put them in a foledr !!^_^ .. . ...... thats all goodby secret diary
