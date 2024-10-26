@@ -1,5 +1,5 @@
-![](https://komarev.com/ghpvc/?username=your-LIVISSKU)  HOW MUCH PEOPLE HAVE FOUND THIS SECRET DIARY!!!
-hi this is secret......... i love splatoon blaster an hav 5 whole starrszz,..  
+![](https://komarev.com/ghpvc/?username=your-LIVISSKU) guys it broke u can no longer see how much people have found this soz
+hi this is secret......... i love splatoon blaster an hav 5 WHOLE STARS!  
 do u ever have friend crushes on people like waaaow they r so cool i wanna be there friend and like ya... okay bye secret diary
 
 ![fake-type-tophamhat-kyo](https://github.com/LIVISSKU/livis-secret/assets/164212085/e8a39187-a839-4319-8d37-6836fee50708)
